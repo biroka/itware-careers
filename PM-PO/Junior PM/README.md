@@ -44,7 +44,8 @@ AMIT KÍNÁLUNK:
 
 MUNKAVÉGZÉS HELYE:
 - 1117 Budapest, Budaofoki út 209
-- Ipari környezetben
+- Irodai környezetben
+- Home Office
 
 Állás, munka területe(i):
 - Adminisztráció, Asszisztens, Irodai munka
